@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @JohnnSG
 - 👀 I’m interested in Acceptable Community
-- 🌱 I’m currently learning not professional, malicious work, dota 2 developers
+- 🌱 I’m 
+I'm checking now not professional, malicious work, dota 2 developers
 - 💞️ I'm looking for a job in steam to create a normal community
 - 📫 How to reach me sheredann@yahoo.com or contact on this site
 - 😄 Pronouns: ...
